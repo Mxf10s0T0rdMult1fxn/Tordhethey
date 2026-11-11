@@ -1,6 +1,6 @@
 11/10
 
-https://en.pronouns.page/@finns_mxf777
+https://en.pronouns.page/@mxf777mult1fxn
 
 Part of the LGBTQ+ community,therian/otherkin/fictionkin community,and furry commuinty
 
