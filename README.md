@@ -6,11 +6,7 @@ Part of the LGBTQ+ community,therian/otherkin/fictionkin community,and furry com
 
 Demi-boy,ftm,bunny,fox,cat,and genderfluid
 
-Gay/pan maybe, and abrosexual
-
-Demisexual and demiromatic
-
-Finn❤4/25/26💝 Son:TwoTime💕Dad:A❤Sis:Tori🩷
+Son:TwoTime💕Dad:A❤Sis:Tori🩷
 Bff:E💛Bsf:T💗
 
 I have a liking to people who are nice and caring 
